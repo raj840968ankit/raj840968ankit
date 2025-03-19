@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **rajankit840968@gmail.com**
 
-- ⚡ Fun fact **I do look funnY😁**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
